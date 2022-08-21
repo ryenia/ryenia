@@ -4,4 +4,4 @@ omniromantic estp 8w7 wasian
 
 INTERACTIONS ARE WELCOME YIPEE
 
-here for my [rentry](https://rentry.co/magickaito)!!!!!! WOOHOO
+IDFK WHAT 2 SAY ya can ask for my carrd
